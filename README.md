@@ -1,0 +1,1 @@
+![Image](/preview/trocaEscola.jpg)
